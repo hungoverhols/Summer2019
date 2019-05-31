@@ -88,8 +88,6 @@
 
 + Piazzo Navona
 
-+ Lunch
-
 + Pantheon
 
 + Piazza Campo de Fiori
@@ -98,21 +96,25 @@
 
 ### Day 3 - 15th
 
-+ #### City of Rome:
+[Route](https://goo.gl/maps/x7qoydMFhU46moev6)
 
-+ Scalinata di trinita dei monti (Spanish Steps)
 
-+ Fontana della Barcaccia
 
-+ Fontana di Trevi
++ #### City of Rome: 
 
-+ Altare della Patria
-
-+ Lunch
++ Colosseo
 
 + Foro Romano
 
-+ Colosseo
++ Altare della Patria
+
++ Fontana di Trevi
+
++ Fontana della Barcaccia
+
++ Scalinata di trinita dei monti (Spanish Steps)
+
++ 
 
 ### Day 4  - 16th
 
