@@ -118,7 +118,9 @@
 
 ### Day 4  - 16th
 
++ ### Florence or naples/ pompeii
 
++ 
 
 ### Day 5 - 17th
 
@@ -135,6 +137,15 @@
 
 + Jeanne / Jerome / Dawid / Ross left
 + Flights to Dublin from Rome (CIA), 21:00 - 23:15
+
+
+
+### Leftovers
+
++ Piazza del Popolo & Villa Borghese Gardens
++ Pyramid of Caius Cestius
++ Bath of Caracalla
++ Appian Way and The Catacombs
 
 
 
