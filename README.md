@@ -9,6 +9,7 @@
 #### Flights
 
 + From 16:55 - 20:25
++ Train for roughly a euro. If we get 9:22 train we will be there at 9:50.
 
 ### Day 2 - 7th
 
@@ -20,9 +21,12 @@
 
 ### Day 4 - 9th
 
++ Check out  from 01:00 till 11:00
+
 #### Flights:
 
 + From 16:10 - 17:40
++ Get train to the airport. Should be leaving town at roughly 1:45
 
 
 
@@ -68,11 +72,47 @@
 
 ### Day 2 - 14th
 
+[Route](https://goo.gl/maps/sp9pTE9fGDn75Bm77)
 
+
+
++ The Vatican
+
++ St. Peter's Basilica
+
++ The Sistene Chapel
+
++ Ponte Sant Angelo
+
++ Castle Sant Angelo
+
++ Piazzo Navona
+
++ Lunch
+
++ Pantheon
+
++ Piazza Campo de Fiori
+
+  
 
 ### Day 3 - 15th
 
++ #### City of Rome:
 
++ Scalinata di trinita dei monti (Spanish Steps)
+
++ Fontana della Barcaccia
+
++ Fontana di Trevi
+
++ Altare della Patria
+
++ Lunch
+
++ Foro Romano
+
++ Colosseo
 
 ### Day 4  - 16th
 
@@ -91,7 +131,7 @@
 
 ### Day 6 - 18th
 
-+ Jeanne/ Dawid / Ross left
++ Jeanne / Jerome / Dawid / Ross left
 + Flights to Dublin from Rome (CIA), 21:00 - 23:15
 
 
@@ -102,9 +142,39 @@
 
 ## Saint Petersburg 21st - 24th :ru:
 
+[Apartment address](https://goo.gl/maps/z52NBhqgQB5z5mrR7)
+
+### Day 1 - 21st
+
+### Day 2 - 22nd
+
+### Day 3 - 23rd
+
+### Day 4 - 24th
+
+#### Train
+
++ From 09:10 - 13:05
+
+
+
 
 
 ## Moscow 24th - 28th :ru:
+
+[Apartment address](https://goo.gl/maps/zsge4QduaRnStvbW8)
+
+### Day 1 - 24st
+
+### Day 2 - 25th
+
+### Day 3 - 26th
+
+### Day 4 - 27th
+
+### Day 5 - 28th
+
+
 
 
 
