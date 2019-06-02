@@ -68,11 +68,12 @@
   + Theres is a bus directly to Rome Termini, costs 6 euro. Every 40 minutes. 35 minutes duration.
 + Their expected arrival to apartments should be 12:30 if all goes well.
 
-[Route (we obviously wont walk)](https://goo.gl/maps/ZG4LYxNP5NHKZn5P6)
+[Route (we obviously wont walk)](https://goo.gl/maps/bGE8hcAfSWKE7b2H9)
 
 + Appian Way and The Catacombs
 + Bath of Caracalla
 + Pyramid of Caius Cestius
++ Circus Maximus (Chariot Racing)
 + Piazza del Popolo & Villa Borghese Gardens
 
 ### Day 2 - 14th
@@ -109,7 +110,7 @@
 
 + Colosseo--- 40 euro#
 
-+ Foro Romano
++ Foro Romano & Trajan's Market
 
 + Altare della Patria
 
@@ -147,7 +148,7 @@
 
 ### Leftovers
 
-+ 
++ Trajans Market
 
 
 
