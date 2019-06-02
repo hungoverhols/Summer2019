@@ -17,7 +17,7 @@
 
 [Route](https://goo.gl/maps/pWiCdXzVY1TWdSwd7)
 
-+ Beer bath :beer:
++ Beer bath :beer: (1:00 - 2:00 pm)
   + Need to book, only like 4 time slots left 54 without sauna 70 with
 + Old town Prague
   + To get a bird’s eye view of the Old Town, you can **climb to the top of the Old Town Hall Tower**. This spire has a lift, whereas many other towers in Prague don’t.
@@ -60,14 +60,14 @@
 ### Day 1 - 11th
 
 + Flights at 6:15am - 9:40am
-
-+ 
-
-
++ Duomo
++ City Life Shopping District
++ Sesh
 
 ### Day 2 - 12th
 
-
++ [Milan Navigli canal boat cruise](<https://www.wheremilan.com/activities/navigli-canal-cruise-citysightseeing/>) 
++ Sesh
 
 ## Rome 13th - 17th :wine_glass:
 
@@ -86,7 +86,7 @@
 #### Flights
 
 + Domi and Jerome fly into Rome (CIA)  06:50 am - 10:55 am
-  + Theres is a bus directly to Rome Termini, costs 6 euro. Every 40 minutes. 35 minutes duration.
+  + There is a bus directly to Rome Termini, costs 6 euro. Every 40 minutes. 35 minutes duration.
 + Their expected arrival to apartments should be 12:30 if all goes well.
 
 [Route (we obviously wont walk)](https://goo.gl/maps/bGE8hcAfSWKE7b2H9)
@@ -101,19 +101,19 @@
 
 [Route](https://goo.gl/maps/sp9pTE9fGDn75Bm77)
 
-+ The Vatican--- Tour cost 40 euro
++ **The Vatican**:  
 
-+ St. Peter's Basilica
++ [St. Peter's Basilica](<http://www.st-peters-basilica-tickets.com/?gclid=CjwKCAjw583nBRBwEiwA7MKvoEmHx10UJOCIzZJrzGYwen71-n-8yX4w86eIVMZdyPvASp1seMH8RxoCn-UQAvD_BwE>)
 
-+ The Sistene Chapel
++ [The Sistene chapel](<http://www.museivaticani.va/content/museivaticani/en/visita-i-musei/scegli-la-visita/musei-e-collezioni/musei-vaticani-e-cappella-sistina/visita-libera-musei-vaticani-e-cappella-sistina.html>)  - 17 euro 
 
-+ Ponte Sant Angelo
++ Ponte Sant Angelo 
 
-+ Castle Sant Angelo
++ Castle Sant Angelo 
 
-+ Piazzo Navona
++ Piazzo Navona 
 
-+ Pantheon
++ Pantheon 
 
 + Piazza Campo de Fiori
 
@@ -125,25 +125,28 @@
 
 + #### City of Rome: 
 
-+ Colosseo--- 40 euro#
++ [Colosseo](<https://www.colosseum-rome-tickets.com/?gclid=CjwKCAjw583nBRBwEiwA7MKvoKQvEEyocxmgrs67Xvr_O1umCpvi5cPK6AB-s4jT6NuwAk8Zqmsq-hoCFkYQAvD_BwE>) - 26 euro 
 
-+ Foro Romano & Trajan's Market
++ [Foro Romano & Trajan's Market]([https://www.google.com/maps/reserve/merchant?q&ld=20190615T000000&c=87Z8zbN2P9Y&gei=pBb0XJmzBpqV1fAP1JmV-AM&hl=en-IE&source=pa&sourceurl=https%3A%2F%2Fwww.google.com%2Fsearch%3Fq%3DForo%2BRomano%2B%2526%2BTrajan%27s%2BMarket%26rlz%3D1C1ASVA_enIE737IE737%26oq%3DForo%2BRomano%2B%2526%2BTrajan%27s%2BMarket%26aqs%3Dchrome..69i57.359j0j7%26sourceid%3Dchrome%26ie%3DUTF-8#/description](https://www.google.com/maps/reserve/merchant?q&ld=20190615T000000&c=87Z8zbN2P9Y&gei=pBb0XJmzBpqV1fAP1JmV-AM&hl=en-IE&source=pa&sourceurl=https%3A%2F%2Fwww.google.com%2Fsearch%3Fq%3DForo%2BRomano%2B%26%2BTrajan's%2BMarket%26rlz%3D1C1ASVA_enIE737IE737%26oq%3DForo%2BRomano%2B%26%2BTrajan's%2BMarket%26aqs%3Dchrome..69i57.359j0j7%26sourceid%3Dchrome%26ie%3DUTF-8#/description)) - 19euro 
 
-+ Altare della Patria
++ Altare della Patria 
 
-+ Fontana di Trevi
++ Fontana di Trevi 
 
-+ Fontana della Barcaccia
++ Fontana della Barcaccia 
 
-+ Scalinata di trinita dei monti (Spanish Steps)
++ Scalinata di trinita dei monti (Spanish Steps) 
 
-+ 
 
 ### Day 4  - 16th
 
-+ ### Florence or naples/ pompeii
++ ### Naples
 
-+ 
++ ###### [Underground 10 euro](<https://www.tripadvisor.ie/AttractionProductReview-g187785-d13412329-Naples_Underground_Entrance_Ticket-Naples_Province_of_Naples_Campania.html>)
+
++ Pompeii
+
++ [Archaeological site walking tour](<https://www.tripadvisor.com/AttractionProductReview-g187786-d11484820-Pompeii_Archaeological_Site_Walking_Tour-Pompeii_Province_of_Naples_Campania.html>) - 12 euro  
 
 ### Day 5 - 17th
 
