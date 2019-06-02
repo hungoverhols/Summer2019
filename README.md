@@ -11,28 +11,28 @@
 + From 16:55 - 20:25
 + Train for roughly a euro. If we get 21:22 train we will be there at 21:50.
 
-+ Go for Absinthe
++ Go for Absinthe :skull_and_crossbones::green_heart:
 
 ### Day 2 - 7th
 
 [Route](https://goo.gl/maps/pWiCdXzVY1TWdSwd7)
 
-+ Beer bath
++ Beer bath :beer:
   + Need to book, only like 4 time slots left 54 without sauna 70 with
 + Old town Prague
   + To get a bird’s eye view of the Old Town, you can **climb to the top of the Old Town Hall Tower**. This spire has a lift, whereas many other towers in Prague don’t.
-+ Prague castle (5 pm)
-  +  St Vitus Cathedral 
-  + Somewhere in tower of St Nicholas church have view of city
-+ [Beer museum (can get a taster for all 30 beers)](http://www.praguebeermuseum.com/)
++ Prague castle :european_castle:
+  +  St Vitus Cathedral :church:
+  + Somewhere in tower of St Nicholas church have view of city :church:
++ [Beer museum (can get a taster for all 30 beers)](http://www.praguebeermuseum.com/) :beers::beer:
 + TODO
 
 ### Day 3 - 8th
 
-+ Prague cemetery
-+ Medieval dinner (7 pm) confirmed
-  - [Without guide](<http://www.krcmabrabant.cz/en/jidelni-listek2/jidelni-listek2/>) (Estimated 21euro vs 46 euro)
-  - Cash since its in dungeon
++ Prague cemetery :pensive:
++ Medieval dinner (7 pm) confirmed :beers::meat_on_bone::poultry_leg:
+  - [Without guide](<http://www.krcmabrabant.cz/en/jidelni-listek2/jidelni-listek2/>) 
+  - Cash since its in dungeon :money_with_wings:
 
 ### Day 4 - 9th
 
@@ -47,7 +47,6 @@
 
 ### Leftovers:
 
-+ 
 + Boat cruise?
 
 
