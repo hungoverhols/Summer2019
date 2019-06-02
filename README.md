@@ -68,7 +68,12 @@
   + Theres is a bus directly to Rome Termini, costs 6 euro. Every 40 minutes. 35 minutes duration.
 + Their expected arrival to apartments should be 12:30 if all goes well.
 
+[Route (we obviously wont walk)](https://goo.gl/maps/ZG4LYxNP5NHKZn5P6)
 
++ Appian Way and The Catacombs
++ Bath of Caracalla
++ Pyramid of Caius Cestius
++ Piazza del Popolo & Villa Borghese Gardens
 
 ### Day 2 - 14th
 
@@ -76,7 +81,7 @@
 
 
 
-+ The Vatican
++ The Vatican--- Tour cost 40 euro
 
 + St. Peter's Basilica
 
@@ -102,7 +107,7 @@
 
 + #### City of Rome: 
 
-+ Colosseo
++ Colosseo--- 40 euro#
 
 + Foro Romano
 
@@ -142,10 +147,7 @@
 
 ### Leftovers
 
-+ Piazza del Popolo & Villa Borghese Gardens
-+ Pyramid of Caius Cestius
-+ Bath of Caracalla
-+ Appian Way and The Catacombs
++ 
 
 
 
