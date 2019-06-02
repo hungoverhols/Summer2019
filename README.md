@@ -9,15 +9,26 @@
 #### Flights
 
 + From 16:55 - 20:25
-+ Train for roughly a euro. If we get 9:22 train we will be there at 9:50.
++ Train for roughly a euro. If we get 21:22 train we will be there at 21:50.
 
 ### Day 2 - 7th
 
+[Route](https://goo.gl/maps/pWiCdXzVY1TWdSwd7)
 
++ Beer bath
+  + Need to book, only like 4 time slots left 54 without sauna 70 with
++ Old town Prague
+  + To get a bird’s eye view of the Old Town, you can **climb to the top of the Old Town Hall Tower**. This spire has a lift, whereas many other towers in Prague don’t.
++ Prague castle (5 pm)
+  +  St Vitus Cathedral 
+  + Somewhere in tower of St Nicholas church have view of city
++ TODO
 
 ### Day 3 - 8th
 
-
++ Prague cemetery
++ Medieval dinner (7 pm)
+  - [Without guide](<http://www.krcmabrabant.cz/en/jidelni-listek2/jidelni-listek2/>) (Estimated 21euro vs 46 euro)
 
 ### Day 4 - 9th
 
@@ -27,6 +38,13 @@
 
 + From 16:10 - 17:40
 + Get train to the airport. Should be leaving town at roughly 1:45
+
+
+
+### Leftovers:
+
++ [Beer museum?](<http://beermuseum.cz/?page_id=2>)
++ Boat cruise?
 
 
 
@@ -148,7 +166,7 @@
 
 ### Leftovers
 
-+ Trajans Market
++ 
 
 
 
