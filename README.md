@@ -11,6 +11,8 @@
 + From 16:55 - 20:25
 + Train for roughly a euro. If we get 21:22 train we will be there at 21:50.
 
++ Go for Absinthe
+
 ### Day 2 - 7th
 
 [Route](https://goo.gl/maps/pWiCdXzVY1TWdSwd7)
@@ -22,13 +24,15 @@
 + Prague castle (5 pm)
   +  St Vitus Cathedral 
   + Somewhere in tower of St Nicholas church have view of city
++ [Beer museum (can get a taster for all 30 beers)](http://www.praguebeermuseum.com/)
 + TODO
 
 ### Day 3 - 8th
 
 + Prague cemetery
-+ Medieval dinner (7 pm)
++ Medieval dinner (7 pm) confirmed
   - [Without guide](<http://www.krcmabrabant.cz/en/jidelni-listek2/jidelni-listek2/>) (Estimated 21euro vs 46 euro)
+  - Cash since its in dungeon
 
 ### Day 4 - 9th
 
@@ -43,7 +47,7 @@
 
 ### Leftovers:
 
-+ [Beer museum?](<http://beermuseum.cz/?page_id=2>)
++ 
 + Boat cruise?
 
 
@@ -98,8 +102,6 @@
 
 [Route](https://goo.gl/maps/sp9pTE9fGDn75Bm77)
 
-
-
 + The Vatican--- Tour cost 40 euro
 
 + St. Peter's Basilica
@@ -121,8 +123,6 @@
 ### Day 3 - 15th
 
 [Route](https://goo.gl/maps/x7qoydMFhU46moev6)
-
-
 
 + #### City of Rome: 
 
