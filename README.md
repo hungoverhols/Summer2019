@@ -150,6 +150,10 @@
 
 ### Day 5 - 17th
 
++ [Beach Route](<https://www.google.com/maps/dir/Experience+Termini+Station,+Via+del+Macao,+Rome,+Metropolitan+City+of+Rome,+Italy/00048+Nettuno,+Metropolitan+City+of+Rome,+Italy/@41.7088067,12.4984888,9z/data=!4m14!4m13!1m5!1m1!1s0x132f61a75c447a69:0x117f36135469a1bb!2m2!1d12.4999355!2d41.9057035!1m5!1m1!1s0x1325a3aff77ff6d9:0x977344f96ff58e04!2m2!1d12.6654914!2d41.4577305!3e3>)
++ [Boat](<https://www.nettunonoleggiobarche.it/it/barca/cirene/?fbclid=IwAR30eYnMdAOW8bezS8_GModEmuIggoBQt023KLXRfq-sNtQhPoqTrIpUUP8>)
++ Note: Way back to the airport is a pain
+
 #### Flights
 
 + Domi, Dmitry fly to Moldova from Rome (FCO), 15:30 to 19:00
