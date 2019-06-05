@@ -202,7 +202,7 @@
 
   + [Kazan Cathedral](<https://www.google.com/search?rlz=1C1ASVA_enIE737IE737&biw=1463&bih=760&tbm=isch&sa=1&ei=5MT3XJv7ErWq1fAPzeKFkAE&q=kazan+cathedral+st+petersburg&oq=kazan+cathe&gs_l=img.1.2.0l2j0i67j0j0i67l2j0i8i30j0i30l2j0i8i30.13702.15026..16591...0.0..0.67.529.11......0....1..gws-wiz-img.......35i39j0i5i30.k-xb_2gsHlA>)
 
-  + [Palace Square & Hermitage](<https://www.google.com/search?rlz=1C1ASVA_enIE737IE737&biw=1463&bih=760&tbm=isch&sa=1&ei=1sT3XKsP4pfV8A_py6T4Cw&q=palace+square+st+petersburg&oq=palace&gs_l=img.1.0.35i39j0i67j0j0i67l2j0l4j0i67.11999.12618..13615...0.0..0.97.325.6......0....1..gws-wiz-img.B3sSf5FpO84>)
+  + [Palace Square & Hermitage & Winter Palace](<https://www.google.com/search?rlz=1C1ASVA_enIE737IE737&biw=1463&bih=760&tbm=isch&sa=1&ei=1sT3XKsP4pfV8A_py6T4Cw&q=palace+square+st+petersburg&oq=palace&gs_l=img.1.0.35i39j0i67j0j0i67l2j0l4j0i67.11999.12618..13615...0.0..0.97.325.6......0....1..gws-wiz-img.B3sSf5FpO84>)
 
   + [St. Isaac's Cathedral]([https://www.google.com/search?q=saint+isaac%27s+cathedral&rlz=1C1ASVA_enIE737IE737&source=lnms&tbm=isch&sa=X&ved=0ahUKEwiS5O2ottLiAhUDtnEKHRffBzYQ_AUIECgB&biw=1463&bih=760&dpr=2.63](https://www.google.com/search?q=saint+isaac's+cathedral&rlz=1C1ASVA_enIE737IE737&source=lnms&tbm=isch&sa=X&ved=0ahUKEwiS5O2ottLiAhUDtnEKHRffBzYQ_AUIECgB&biw=1463&bih=760&dpr=2.63))
 
@@ -220,7 +220,7 @@
 
   + Summer Garden
 
-  + Mikhailovsky Castle
+  + Mikhailovsky Castle 
 
   + [Church of the Savior on Split Blood](<https://www.google.com/search?q=church+of+the+savior+on+blood&rlz=1C1ASVA_enIE737IE737&source=lnms&tbm=isch&sa=X&ved=0ahUKEwjttLSxt9LiAhU1oXEKHV-qBwQQ_AUIECgB&biw=1463&bih=760&dpr=2.63>)
 
@@ -233,9 +233,13 @@
 
 + Banya
 
+  + [Казазчьи Бани](<http://kazbani.ru/21-sauna_lyuks_na_dvoih_v_sanktpeterburge/>)  Private sauna. 16e per hour total. 24/7
+  + [Sokos hotel spa](<https://www.sokoshotels.fi/en/st-petersburg/sokos-hotel-palace-bridge/gym>) 7 different saunas and a ice room.  Till 11pm. 24e each for entry.
+
 ### Day 2 - 22nd (Saturday)
 
 + [Peterhof Palaces](<https://www.google.com/search?q=peterhof&rlz=1C1ASVA_enIE737IE737&source=lnms&tbm=isch&sa=X&ved=0ahUKEwimrp7bwNLiAhVoShUIHdOPBTUQ_AUIECgB&biw=1463&bih=760&dpr=2.63>)
+  + This will take the majority of the day but is a must see.
 
 + Play or Opera or Concert in Mariinsky Theatre (7pm or 9pm)
 
@@ -256,7 +260,15 @@
 
 ### Ideas
 
++ Nevsky Prospekt
 
++ The Hermitage
+  + Second largest art museum in the world, behind the Louvre
+
++ Tsarskoe selo in Pushkin
+
++ See the drawbridges at night. But make sure we on the right side of the bridge.
++ Roofs apparently
 
 ## Moscow 24th - 28th :ru:
 
