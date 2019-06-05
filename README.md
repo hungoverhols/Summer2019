@@ -204,7 +204,7 @@
 
   + [Palace Square & Hermitage & Winter Palace](<https://www.google.com/search?rlz=1C1ASVA_enIE737IE737&biw=1463&bih=760&tbm=isch&sa=1&ei=1sT3XKsP4pfV8A_py6T4Cw&q=palace+square+st+petersburg&oq=palace&gs_l=img.1.0.35i39j0i67j0j0i67l2j0l4j0i67.11999.12618..13615...0.0..0.97.325.6......0....1..gws-wiz-img.B3sSf5FpO84>)
 
-  + [St. Isaac's Cathedral]([https://www.google.com/search?q=saint+isaac%27s+cathedral&rlz=1C1ASVA_enIE737IE737&source=lnms&tbm=isch&sa=X&ved=0ahUKEwiS5O2ottLiAhUDtnEKHRffBzYQ_AUIECgB&biw=1463&bih=760&dpr=2.63](https://www.google.com/search?q=saint+isaac's+cathedral&rlz=1C1ASVA_enIE737IE737&source=lnms&tbm=isch&sa=X&ved=0ahUKEwiS5O2ottLiAhUDtnEKHRffBzYQ_AUIECgB&biw=1463&bih=760&dpr=2.63))
+  + [St. Isaac's Cathedral](https://www.google.com/search?q=saint+isaac's+cathedral&rlz=1C1ASVA_enIE737IE737&source=lnms&tbm=isch&sa=X&ved=0ahUKEwiS5O2ottLiAhUDtnEKHRffBzYQ_AUIECgB&biw=1463&bih=760&dpr=2.63)
 
     + If want to go inside < 6e
 
@@ -233,7 +233,7 @@
 
 + Banya
 
-  + [Казазчьи Бани](<http://kazbani.ru/21-sauna_lyuks_na_dvoih_v_sanktpeterburge/>)  Private sauna. 16e per hour total. 24/7
+  + [Казачьи Бани](<http://kazbani.ru/21-sauna_lyuks_na_dvoih_v_sanktpeterburge/>)  Private sauna. 16e per hour total. 24/7
   + [Sokos hotel spa](<https://www.sokoshotels.fi/en/st-petersburg/sokos-hotel-palace-bridge/gym>) 7 different saunas and a ice room.  Till 11pm. 24e each for entry.
 
 ### Day 2 - 22nd (Saturday)
@@ -250,6 +250,11 @@
 
 ### Day 3 - 23rd (Sunday)
 
++ Pushkin - Catherine's Palace
++ Nevsky Prospekt
++ The Hermitage
+  - Second largest art museum in the world, behind the Louvre
+
 ### Day 4 - 24th (Monday)
 
 #### Train
@@ -259,13 +264,6 @@
 
 
 ### Ideas
-
-+ Nevsky Prospekt
-
-+ The Hermitage
-  + Second largest art museum in the world, behind the Louvre
-
-+ Tsarskoe selo in Pushkin
 
 + See the drawbridges at night. But make sure we on the right side of the bridge.
 + Roofs apparently
