@@ -206,17 +206,110 @@
 
 ### Day 1 - 24st
 
+#### Train
+
++ Arrival at 13:05 to Ленинградский Вокзал
++ [Directions to hotel](https://goo.gl/maps/f2jU6xFGWzeXTXjJ8)
+
+#### Plan
+
++ [Gorky Park](<https://www.google.com/search?q=gorky+park&rlz=1C1ASVA_enIE737IE737&source=lnms&tbm=isch&sa=X&ved=0ahUKEwihz9j2ltHiAhXcURUIHd7CAp4Q_AUIECgB&biw=1463&bih=760&dpr=2.63>)
+
+  + This is a huge central park.
+
++ Muzeon Park of Arts
+
+  + Monument to Peter The Great 
+
+  + Sculpture Park
+
++ [Cathedral of Christ The Saviour](<https://www.google.com/search?rlz=1C1ASVA_enIE737IE737&biw=1463&bih=760&tbm=isch&sa=1&ei=0Rn3XIOBG5GH1fAP5qWuqAw&q=cathedral+of+christ+the+saviour&oq=cathedral+of+ch&gs_l=img.1.0.0l10.35055.40209..41360...5.0..0.67.881.20......0....1..gws-wiz-img.......35i39j0i67j0i10i24.Yu-B0xrsSkE>)
+
+  + Absolute unit
+
+  + Monument To Emperor Alexander II
+
++ [Red Square](<https://www.google.com/search?rlz=1C1ASVA_enIE737IE737&biw=1463&bih=760&tbm=isch&sa=1&ei=IRr3XJwVyY_V8A-b8qDYBg&q=red+square&oq=red+square&gs_l=img.3..0l10.18277.20235..20315...0.0..0.78.471.10......0....1..gws-wiz-img.......35i39j0i67.X_O--GyYSa0>)
+
+  + The Armoury
+
+  + Alexander's gardens & Eternal Fire
+
+  + Lenin's Mausoleum
+  +  Saint Basil's Cathedral
+  + ГУМ
+  + The Kremlin
+  + Tsar Cannon
+  + Red wall по набережной. Borovitskaya Bashnya etc
+
++ Varvarka Street and Zaryadea Park
+
 ### Day 2 - 25th
+
++ [Monument to Yuri Gagarin](https://i.redd.it/43t6mreq49i11.png)
+  + Has a viewing balcony nearby
+  + And a skybar
++ Sparrow Hills (Воробьевые Горы)
+  + Must see panorama view of city
+
++ [Moscow State University](<https://www.google.com/search?rlz=1C1ASVA_enIE737IE737&biw=1463&bih=760&tbm=isch&sa=1&ei=pxr3XPqAGquH1fAP7NOfkA4&q=moscow+state+university&oq=moscow+state+&gs_l=img.1.0.0l10.35677.36941..37877...0.0..0.48.538.13......0....1..gws-wiz-img.......35i39j0i67.lVf52FIA7KY>)
++ Victory Park
+  + WW2 Museum
++ Triumphal Arch
++ Panorama Museum "Borodinskaya Bitva"
+  + Napoleon war museum
++ [Novodevichy Convent](<https://www.google.com/search?q=Novodevichy+Convent&rlz=1C1ASVA_enIE737IE737&source=lnms&tbm=isch&sa=X&ved=0ahUKEwit-aWzmtHiAhWsVBUIHQUrCJ8Q_AUIECgB&biw=1463&bih=760&dpr=2.63>)
+  + UNESCO world heritage. Monastery from 1500's
++ [Moscow City](<https://www.google.com/search?rlz=1C1ASVA_enIE737IE737&biw=1463&bih=760&tbm=isch&sa=1&ei=BB33XOfFDPHoxgPBxYTIDA&q=moscow+city&oq=moscow+city&gs_l=img.3..0l10.8638.9736..9839...0.0..0.56.460.11......0....1..gws-wiz-img.......35i39j0i67.8p4NC6iqJXI>)
+  + Lunch / dinner?
++ Arbat Street
+  + Main pedestrian street
 
 ### Day 3 - 26th
 
++ Kolomenskoe Royal Estate
+
+  + UNESCO world heritage. Dates to 1500's
+
++ [ВДНХ park](<https://www.google.com/search?q=vdnkh+moscow&rlz=1C1ASVA_enIE737IE737&source=lnms&tbm=isch&sa=X&ved=0ahUKEwiS7ofHmtHiAhWRuHEKHameCD4Q_AUIECgB&biw=1463&bih=760&dpr=2.63>)
+
+  + This is a _huge_ park. Has a trade show.
+
+  + Museum of Cosmonautics nearby
+  + [Monument to Tsiolkovsky](<https://www.google.com/search?q=monument+to+tsiolkovsky&rlz=1C1ASVA_enIE737IE737&source=lnms&tbm=isch&sa=X&ved=0ahUKEwj9uuXimdHiAhWDQxUIHT3ZCRAQ_AUIECgB&biw=1463&bih=760&dpr=2.63>)
+  + [Monument to Worker and Kolkhoz Woman](<https://www.google.com/search?rlz=1C1ASVA_enIE737IE737&biw=1463&bih=760&tbm=isch&sa=1&ei=XBz3XLv9CdOY1fAP5YybsAQ&q=monument+to+worker+and+kolhoz+woman&oq=monument+to+worker+and+kolhoz+woman&gs_l=img.3...20455.25186..25265...0.0..0.47.981.25......0....1..gws-wiz-img.......0j35i39j0i8i30j0i24.sOOexZj2_5c>)
+
++ Ostankino Park
+
++ Ostankino Radio Tower
+
+  + 4th largest building in the world. Might need to book online as limited number of tickets per day to view the city from above.
+
 ### Day 4 - 27th
+
++ Golden ring of Russia?
+  + Visit some ancient Russia towns on the outside of Moscow
+  + For example [Sergiev Posad](<https://www.google.com/search?q=Sergiev+Posad&rlz=1C1ASVA_enIE737IE737&source=lnms&tbm=isch&sa=X&ved=0ahUKEwjM76uOmtHiAhUUShUIHatSCn4Q_AUIECgB&biw=1463&bih=760&dpr=2.63>)
 
 ### Day 5 - 28th
 
++ Check out at 12:00
++ Possibly see Izmailovo. Depends how much luggage we have.
++ Or just go alcohol shopping
 
++ Return flights from (SVO) 19:35 - 22:00
 
+### Ideas
 
++ Something Space related
++ Tretyakov Gallery?
++ moscow state circus?
+
++ Concert?
+
++ Boat ride?
++ Kremlin in Izmailovo
+  + Izmailovo market 
 
 
 
