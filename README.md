@@ -4,7 +4,7 @@
 
 [Apartment Address](https://goo.gl/maps/ZfzApYyhNuNTS3at7)
 
-### Day 1 - 6th
+### Day 1 - 6th (Thursday)
 
 #### Flights
 
@@ -13,12 +13,11 @@
 
 + Go for Absinthe :skull_and_crossbones::green_heart:
 
-### Day 2 - 7th
+### Day 2 - 7th (Friday)
 
 [Route](https://goo.gl/maps/pWiCdXzVY1TWdSwd7)
 
-+ Beer bath :beer: (1:00 - 2:00 pm)
-  + Need to book, only like 4 time slots left 54 without sauna 70 with
++ Beer bath :beer: (1:00 - 2:00 pm) confirmed.
 + Old town Prague
   + To get a bird’s eye view of the Old Town, you can **climb to the top of the Old Town Hall Tower**. This spire has a lift, whereas many other towers in Prague don’t.
 + Prague castle :european_castle:
@@ -27,14 +26,14 @@
 + [Beer museum (can get a taster for all 30 beers)](http://www.praguebeermuseum.com/) :beers::beer:
 + TODO
 
-### Day 3 - 8th
+### Day 3 - 8th (Saturday)
 
 + Prague cemetery :pensive:
 + Medieval dinner (7 pm) confirmed :beers::meat_on_bone::poultry_leg:
   - [Without guide](<http://www.krcmabrabant.cz/en/jidelni-listek2/jidelni-listek2/>) 
   - Cash since its in dungeon :money_with_wings:
 
-### Day 4 - 9th
+### Day 4 - 9th (Sunday)
 
 + Check out  from 01:00 till 11:00
 
@@ -57,14 +56,14 @@
 
 
 
-### Day 1 - 11th
+### Day 1 - 11th (Tuesday)
 
 + Flights at 6:15am - 9:40am
 + Duomo
 + City Life Shopping District
 + Sesh
 
-### Day 2 - 12th
+### Day 2 - 12th (Wednesday)
 
 + [Milan Navigli canal boat cruise](<https://www.wheremilan.com/activities/navigli-canal-cruise-citysightseeing/>) 
 + Sesh
@@ -75,7 +74,7 @@
 
 
 
-### Day 1 - 13th
+### Day 1 - 13th (Thursday)
 
 #### Train to Rome: 6:05 - 9:22
 
@@ -97,7 +96,7 @@
 + Circus Maximus (Chariot Racing)
 + Piazza del Popolo & Villa Borghese Gardens
 
-### Day 2 - 14th
+### Day 2 - 14th (Friday)
 
 [Route](https://goo.gl/maps/sp9pTE9fGDn75Bm77)
 
@@ -119,7 +118,7 @@
 
   
 
-### Day 3 - 15th
+### Day 3 - 15th (Saturday)
 
 [Route](https://goo.gl/maps/x7qoydMFhU46moev6)
 
@@ -138,7 +137,7 @@
 + Scalinata di trinita dei monti (Spanish Steps) 
 
 
-### Day 4  - 16th
+### Day 4  - 16th (Sunday)
 
 + ### Naples
 
@@ -148,7 +147,7 @@
 
 + [Archaeological site walking tour](<https://www.tripadvisor.com/AttractionProductReview-g187786-d11484820-Pompeii_Archaeological_Site_Walking_Tour-Pompeii_Province_of_Naples_Campania.html>) - 12 euro  
 
-### Day 5 - 17th
+### Day 5 - 17th (Monday)
 
 + [Beach Route](<https://www.google.com/maps/dir/Experience+Termini+Station,+Via+del+Macao,+Rome,+Metropolitan+City+of+Rome,+Italy/00048+Nettuno,+Metropolitan+City+of+Rome,+Italy/@41.7088067,12.4984888,9z/data=!4m14!4m13!1m5!1m1!1s0x132f61a75c447a69:0x117f36135469a1bb!2m2!1d12.4999355!2d41.9057035!1m5!1m1!1s0x1325a3aff77ff6d9:0x977344f96ff58e04!2m2!1d12.6654914!2d41.4577305!3e3>)
 + [Boat](<https://www.nettunonoleggiobarche.it/it/barca/cirene/?fbclid=IwAR30eYnMdAOW8bezS8_GModEmuIggoBQt023KLXRfq-sNtQhPoqTrIpUUP8>)
@@ -161,9 +160,7 @@
 
 
 
-
-
-### Day 6 - 18th
+### Day 6 - 18th (Tuesday)
 
 + Jeanne / Jerome / Dawid / Ross left
 + Flights to Dublin from Rome (CIA), 21:00 - 23:15
@@ -178,19 +175,78 @@
 
 ## Moldova 17th - 21st :moldova:
 
+### Day 1 - 17th (Monday)
 
+### Day 2 - 18th (Tuesday)
+
+### Day 3 - 19th (Wednesday)
+
+### Day 4 - 20th (Thursday)
 
 ## Saint Petersburg 21st - 24th :ru:
 
 [Apartment address](https://goo.gl/maps/z52NBhqgQB5z5mrR7)
 
-### Day 1 - 21st
+[Informative guide](<https://stingynomads.com/st-petersburg-city-guide/>)
 
-### Day 2 - 22nd
+### Day 1 - 21st (Friday)
 
-### Day 3 - 23rd
+#### Flights 
 
-### Day 4 - 24th
++ From 10:05 to 11:30. Then from 12:40 to 13:55
++ [Directions to Hotel](https://goo.gl/maps/Bz2menxBoKps7seq8)
+
+#### Plan
+
++ [2-hour walking route through main city centre attractions](<https://www.google.com/maps/d/u/0/viewer?mid=1__DaCFhULljKOATHmWtsX1a7E-zfBl2K&ll=59.940796409620184%2C30.324665241909997&z=15>)
+
+  + [Kazan Cathedral](<https://www.google.com/search?rlz=1C1ASVA_enIE737IE737&biw=1463&bih=760&tbm=isch&sa=1&ei=5MT3XJv7ErWq1fAPzeKFkAE&q=kazan+cathedral+st+petersburg&oq=kazan+cathe&gs_l=img.1.2.0l2j0i67j0j0i67l2j0i8i30j0i30l2j0i8i30.13702.15026..16591...0.0..0.67.529.11......0....1..gws-wiz-img.......35i39j0i5i30.k-xb_2gsHlA>)
+
+  + [Palace Square & Hermitage](<https://www.google.com/search?rlz=1C1ASVA_enIE737IE737&biw=1463&bih=760&tbm=isch&sa=1&ei=1sT3XKsP4pfV8A_py6T4Cw&q=palace+square+st+petersburg&oq=palace&gs_l=img.1.0.35i39j0i67j0j0i67l2j0l4j0i67.11999.12618..13615...0.0..0.97.325.6......0....1..gws-wiz-img.B3sSf5FpO84>)
+
+  + [St. Isaac's Cathedral]([https://www.google.com/search?q=saint+isaac%27s+cathedral&rlz=1C1ASVA_enIE737IE737&source=lnms&tbm=isch&sa=X&ved=0ahUKEwiS5O2ottLiAhUDtnEKHRffBzYQ_AUIECgB&biw=1463&bih=760&dpr=2.63](https://www.google.com/search?q=saint+isaac's+cathedral&rlz=1C1ASVA_enIE737IE737&source=lnms&tbm=isch&sa=X&ved=0ahUKEwiS5O2ottLiAhUDtnEKHRffBzYQ_AUIECgB&biw=1463&bih=760&dpr=2.63))
+
+    + If want to go inside < 6e
+
+    + 360 view of city on top.
+
+  + Bronze Horseman
+
+    + Huge statue to Peter the Great
+
+  + [Peter and Paul Fortress](<https://www.google.com/search?q=peter+and+paul+fortress&rlz=1C1ASVA_enIE737IE737&source=lnms&tbm=isch&sa=X&ved=0ahUKEwio3evDtNLiAhVHQRUIHc80BJEQ_AUIECgB&biw=1463&bih=760&dpr=2.63>)
+
+    + Museum of History of the city. Museum of cosmonautics, Medieval torture museum etc
+
+  + Summer Garden
+
+  + Mikhailovsky Castle
+
+  + [Church of the Savior on Split Blood](<https://www.google.com/search?q=church+of+the+savior+on+blood&rlz=1C1ASVA_enIE737IE737&source=lnms&tbm=isch&sa=X&ved=0ahUKEwjttLSxt9LiAhU1oXEKHV-qBwQQ_AUIECgB&biw=1463&bih=760&dpr=2.63>)
+
+    + < 5e entrance
+    + For pictures without people come at 5/6am
+
+  + Russian Museum (art)
+
+  + Many sites in between
+
++ Banya
+
+### Day 2 - 22nd (Saturday)
+
++ [Peterhof Palaces](<https://www.google.com/search?q=peterhof&rlz=1C1ASVA_enIE737IE737&source=lnms&tbm=isch&sa=X&ved=0ahUKEwimrp7bwNLiAhVoShUIHdOPBTUQ_AUIECgB&biw=1463&bih=760&dpr=2.63>)
+
++ Play or Opera or Concert in Mariinsky Theatre (7pm or 9pm)
+
+  + [Tickets](<https://www.mariinsky.ru/en/playbill/playbill>) 25e ish for concert/opera. 40-90e for **Anna Karenina**
+  + [The place is really fancy](https://stingynomads.com/wp-content/uploads/2017/07/St.Petersburg-city-guide-4.jpg)
+
+  
+
+### Day 3 - 23rd (Sunday)
+
+### Day 4 - 24th (Monday)
 
 #### Train
 
@@ -198,13 +254,15 @@
 
 
 
+### Ideas
+
 
 
 ## Moscow 24th - 28th :ru:
 
 [Apartment address](https://goo.gl/maps/zsge4QduaRnStvbW8)
 
-### Day 1 - 24st
+### Day 1 - 24th (Monday)
 
 #### Train
 
@@ -244,7 +302,7 @@
 
 + Varvarka Street and Zaryadea Park
 
-### Day 2 - 25th
+### Day 2 - 25th (Tuesday)
 
 + [Monument to Yuri Gagarin](https://i.redd.it/43t6mreq49i11.png)
   + Has a viewing balcony nearby
@@ -265,7 +323,7 @@
 + Arbat Street
   + Main pedestrian street
 
-### Day 3 - 26th
+### Day 3 - 26th (Wednesday)
 
 + [Kolomenskoe Royal Estate](<https://www.google.com/search?q=kolomenskoye+estate&rlz=1C1ASVA_enIE737IE737&source=lnms&tbm=isch&sa=X&ved=0ahUKEwjRxuCAm9HiAhUbQRUIHfYdBqcQ_AUIECgB&biw=1463&bih=760&dpr=2.63>)
 
@@ -283,15 +341,17 @@
 
 + Ostankino Radio Tower
 
+  + Need passport, apperently security is very strict
+  
   + 4th largest building in the world. Might need to book online as limited number of tickets per day to view the city from above.
 
-### Day 4 - 27th
+### Day 4 - 27th (Thursday)
 
 + Golden ring of Russia?
   + Visit some ancient Russia towns on the outside of Moscow
   + For example [Sergiev Posad](<https://www.google.com/search?q=Sergiev+Posad&rlz=1C1ASVA_enIE737IE737&source=lnms&tbm=isch&sa=X&ved=0ahUKEwjM76uOmtHiAhUUShUIHatSCn4Q_AUIECgB&biw=1463&bih=760&dpr=2.63>)
 
-### Day 5 - 28th
+### Day 5 - 28th (Friday)
 
 + Check out at 12:00
 + Possibly see Izmailovo. Depends how much luggage we have.
