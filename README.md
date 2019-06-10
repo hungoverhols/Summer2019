@@ -17,21 +17,16 @@
 
 [Route](https://goo.gl/maps/pWiCdXzVY1TWdSwd7)
 
-+ Beer bath :beer: (1:00 - 2:00 pm) confirmed.
++ Beer bath :beer:
 + Old town Prague
-  + To get a bird’s eye view of the Old Town, you can **climb to the top of the Old Town Hall Tower**. This spire has a lift, whereas many other towers in Prague don’t.
 + Prague castle :european_castle:
   +  St Vitus Cathedral :church:
   + Somewhere in tower of St Nicholas church have view of city :church:
 + [Beer museum (can get a taster for all 30 beers)](http://www.praguebeermuseum.com/) :beers::beer:
-+ TODO
 
 ### Day 3 - 8th (Saturday)
 
-+ Prague cemetery :pensive:
 + Medieval dinner (7 pm) confirmed :beers::meat_on_bone::poultry_leg:
-  - [Without guide](<http://www.krcmabrabant.cz/en/jidelni-listek2/jidelni-listek2/>) 
-  - Cash since its in dungeon :money_with_wings:
 
 ### Day 4 - 9th (Sunday)
 
@@ -41,12 +36,6 @@
 
 + From 16:10 - 17:40
 + Get train to the airport. Should be leaving town at roughly 1:45
-
-
-
-### Leftovers:
-
-+ Boat cruise?
 
 
 
@@ -139,13 +128,19 @@
 
 ### Day 4  - 16th (Sunday)
 
-+ ### Naples
+### Naples
+
++ [Useful Directions](<https://www.seat61.com/places-of-interest/day-trip-to-pompeii.htm>)
+
++ Train 06:55 - 08:10 Rome to Naples.
 
 + ###### [Underground 10 euro](<https://www.tripadvisor.ie/AttractionProductReview-g187785-d13412329-Naples_Underground_Entrance_Ticket-Naples_Province_of_Naples_Campania.html>)
 
 + Pompeii
 
 + [Archaeological site walking tour](<https://www.tripadvisor.com/AttractionProductReview-g187786-d11484820-Pompeii_Archaeological_Site_Walking_Tour-Pompeii_Province_of_Naples_Campania.html>) - 12 euro  
+
++ Return train 20:40-21:55 Naples to Rome.
 
 ### Day 5 - 17th (Monday)
 
@@ -239,8 +234,9 @@
 ### Day 2 - 22nd (Saturday)
 
 + [Peterhof Palaces](<https://www.google.com/search?q=peterhof&rlz=1C1ASVA_enIE737IE737&source=lnms&tbm=isch&sa=X&ved=0ahUKEwimrp7bwNLiAhVoShUIHdOPBTUQ_AUIECgB&biw=1463&bih=760&dpr=2.63>)
-  + This will take the majority of the day but is a must see.
-
+  
++ This will take the majority of the day but is a must see.
+  
 + Play or Opera or Concert in Mariinsky Theatre (7pm or 9pm)
 
   + [Tickets](<https://www.mariinsky.ru/en/playbill/playbill>) 25e ish for concert/opera. 40-90e for **Anna Karenina**
